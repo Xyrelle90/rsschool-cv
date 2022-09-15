@@ -1,5 +1,7 @@
 # Justina Janauske
 
+[![IMG-20200916-183353.jpg](https://i.postimg.cc/4xQ4CDK0/IMG-20200916-183353.jpg)](https://postimg.cc/Hrj1XP90)
+
 [Gmail](justina.janauske@gmail.com) | [Linkedin](www.blabla.lt) | [Facebook](www.facebook.com)
 
 ## Currently 
