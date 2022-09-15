@@ -1,5 +1,6 @@
 # Justina Janauske
 
+[Gmail](justina.janauske@gmail.com) | [Linkedin](www.blabla.lt) | [Facebook](www.facebook.com)
 
 ## Currently 
 
